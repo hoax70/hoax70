@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hoax70
 - 👀 I’m interested in cybersecurity and hacking 
-- 🌱 I’m currently learning cybersecurity
+- 🌱 I’m currently learning btech.cse cybersecurity
 - 💞️ I’m looking to collaborate on various projects and like to learn. 
 - 😄 Pronouns: he {nothing else }
 - ⚡ Fun fact: a comp head with an animal addiction.
